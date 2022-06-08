@@ -1,7 +1,7 @@
 # Matveeva Maria
 ## Contacts:
-* E-mail: charliecha777@gmail.com
-* GitHab: MiaVasse
+* E-mail: dokitane@icloud.com
+* GitHab: Dokitane
 * Phone: +8 934 545 66 77
 * Discord:MiaV#8297
 ## About me:
